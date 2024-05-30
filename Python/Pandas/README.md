@@ -1,1 +1,1 @@
-Các bài tập và tài liệu dự trên: https://drive.google.com/file/d/1azjA9GcktgJgH6zQGE5EuDUHS-xyEM-5/view
+Các bài tập và tài liệu dự trên: https://hcmuteduvn-my.sharepoint.com/:b:/g/personal/loc_tran04_hcmut_edu_vn/EaK6TLqiHvVGhoh1-D_AYJ8BPOKFE5z259sEo_ufCsED9A?e=uVabh9
